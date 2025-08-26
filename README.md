@@ -1,7 +1,5 @@
-haii Im lexiz, I like making sonic prime cosplays!! (pony town related)
+` account made for personal purposes
 
-Im MANGEY guys trust me!! \\fictionkin
+check links for more info
 
-IWC!!!
-
-Uhh uhh more info on my strawpage jawduwqeq :sob:
+uhh I like me
